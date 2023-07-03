@@ -1,3 +1,3 @@
-Gard
-Oslo
-Version Control
+Goethe
+Bad Wurtenberg
+Der Deutsche idealismus
